@@ -1,1 +1,1 @@
-Hi, I'm @codervaishali.I'm currently learning HTML,CSS,Javascript and React. 
+I have upskilled in Data analytics. Looking to apply expertise in data analysis, data processing, and reporting to increase the efficiency and accuracy of data processing leading to growth and success of the organization.
